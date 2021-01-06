@@ -1,1 +1,2 @@
-Christopher Eckerson-Keith
+Christopher Eckerson
+eckersoc@oregonstate.edu
